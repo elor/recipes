@@ -38,6 +38,7 @@
 ## Zubereitung
 ### Teig
 Vermengen und kneten.
+Springform mit hohem Rand auskleiden.
 
 ### Füllung
 Verrühren.
