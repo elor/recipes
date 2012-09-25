@@ -22,7 +22,6 @@
 * 1 Pkt. Backpulver
 
 ### Füllung
-Für die Füllung:
 * 150 g Zucker
 * 3 Ei(er)
 * 500 g Quark
