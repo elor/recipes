@@ -10,6 +10,7 @@
 * 1 EL Milch
 * 1 Zitrone
 * 1 TL Backpulver
+* 1 Pck. Vanillepudding
 * Salz
 
 ### Teig
