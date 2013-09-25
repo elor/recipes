@@ -1,4 +1,4 @@
-# Zupfkuchen
+# Eierschecke
 
 ## Zutaten
 ### Summe

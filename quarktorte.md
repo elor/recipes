@@ -1,4 +1,4 @@
-# Zupfkuchen
+# Quarktorte
 
 ## Zutaten
 ### Summe
