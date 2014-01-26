@@ -4,10 +4,10 @@
 ### Summe
 * 200 g Mehl
 * 100 g Margarine
-* 200 g Butter
+* 175 g Butter
 * 6 Eier
-* 500 g Quark
-* 2 EL Grieß
+* 500 g Magerquark
+* max. 2 EL Grieß
 * Zucker
 * Milch
 * Salz
@@ -25,27 +25,28 @@
 * 500 g Magerquark
 * 2 Eier
 * 2 EL Grieß
+* Milch nach Belieben
 * Zucker
-* Milch
 
 ### Guss
-* 3 Eier
-* 200 g Butter
 * 0.5 l Milch
-* Zucker
+* ca. 40g Zucker
 * 1 Pck. Vanillepudding
+* 175 g Butter
+* 3 Eier
 
 ## Zubereitung
+### Pudding
+Pudding kochen, dann Butter unterrühren und kalt stellen.
+
 ### Teig
-Vermengen und kneten.
-Springform mit hohem Rand auskleiden.
+Vermengen und kneten. Springform mit hohem Rand auskleiden.
 
 ### Füllung
-Verrühren.
+Verrühren und in die Form gießen
 
 ### Guss
-Pudding kochen, Butter untermischen, kalt stellen.
-Nach Erkalten Eigelb und geschlagenes Eiweiß unterrühren.
+In erkalteten Pudding Eigelb und geschlagenes Eiweiß unterrühren.
 
 ## Backen
 Auf vorletzter Schiene bei 180°C Ober-/Unterhitze 45-60 Minuten backen.

@@ -32,17 +32,12 @@
 
 ## Zubereitung
 ### Teig
-Das Mehl und das Backpulver vermischen und in eine große Schüssel geben.
-Zucker und gesiebten Kakao dazugeben.
-Butter und Eier dazumischen und alles gut kneten.
-Etwa 1/4 des Teiges wegstellen, den anderen Teig in eine Springform füllen.
-Den Rand gut auskleiden.
+Zutaten vermischen und gut kneten. Mit 3/4 des Teiges eine Springform dünn auskleiden, den Rest wegstellen.
 
 ### Füllung
-Butter schaumig rühren , danach Quark, süße Sahne, Eier und die restlichen Zutaten hinzufügen und gut verrühren.
-Danach in die Springform füllen.
+Butter schaumig rühren, die restlichen Zutaten hinzufügen, gut verrühren und in die Springform füllen.
 Zum Schluss den weggestellten Teig in Stücke zupfen und auf der Füllung verteilen.
 
 ## Backen
-Den Kuchen bei 130-170 Grad unter Umluft auf vorletzter Höhe etwa 55 Minuten backen, dann mal gucken, da er sonst oben verbrennt.
+Den Kuchen unter Umluft auf vorletzter Höhe backen, erst bei 170 Grad ca. 25 Minuten, dann mit Alufolie abdecken und bei 150 Grad eine halbe Stunde fertig backen und im Ofen auskühlen lassen.
 
