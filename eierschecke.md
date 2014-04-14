@@ -9,8 +9,9 @@
 * 500 g Magerquark
 * max. 2 EL Grieﬂ
 * Zucker
-* Milch
+* ca. 0.6 l Milch
 * Salz
+* 1 Pck. Vanillepudding
 * 1/2 Pck. Backpulver
 
 ### Teig
