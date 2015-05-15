@@ -10,7 +10,7 @@
 * 40 g Kakaopulver
 * 5 Eier
 * 1 Pkt Backpulver
-* 1 Pkt Vanillepulver
+* 1 Pkt Vanillezucker
 * Salz
 
 ### Teig
@@ -21,23 +21,23 @@
 * 40 g Kakaopulver
 * 1 Pkt. Backpulver
 
-### Füllung
+### FÃ¼llung
 * 150 g Zucker
 * 3 Ei(er)
 * 500 g Quark
-* 200 g süße Sahne
+* 200 g sÃ¼ÃŸe Sahne
 * 1 Pkt. Vanillezucker
 * 1 Prise Salz
 * 70 g Butter
 
 ## Zubereitung
 ### Teig
-Zutaten vermischen und gut kneten. Mit 3/4 des Teiges eine Springform dünn auskleiden, den Rest wegstellen.
+Zutaten vermischen und gut kneten. Mit 3/4 des Teiges eine Springform dÃ¼nn auskleiden, den Rest wegstellen.
 
-### Füllung
-Butter schaumig rühren, die restlichen Zutaten hinzufügen, gut verrühren und in die Springform füllen.
-Zum Schluss den weggestellten Teig in Stücke zupfen und auf der Füllung verteilen.
+### FÃ¼llung
+Butter schaumig rÃ¼hren, die restlichen Zutaten hinzufÃ¼gen, gut verrÃ¼hren und in die Springform fÃ¼llen.
+Zum Schluss den weggestellten Teig in StÃ¼cke zupfen und auf der FÃ¼llung verteilen.
 
 ## Backen
-Den Kuchen unter Umluft auf vorletzter Höhe backen, erst bei 170 Grad ca. 25 Minuten, dann mit Alufolie abdecken und bei 150 Grad eine halbe Stunde fertig backen und im Ofen auskühlen lassen.
+Den Kuchen unter Umluft auf vorletzter HÃ¶he backen, erst bei 170 Grad ca. 25 Minuten, dann mit Alufolie abdecken und bei 150 Grad eine halbe Stunde fertig backen und im Ofen auskÃ¼hlen lassen.
 
