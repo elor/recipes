@@ -6,6 +6,8 @@
 * 175 g Butter
 * 1 Pkg Backpulver
 * 3 Eier
+* 100 ml Creme Fraiche
+* 100 ml Sahne
 * halbe Tasse Kakao
 * halbe Tasse Wasser
 * Kirschen (ca. halbes Glas, je nach Abnehmer entkernt)
@@ -13,7 +15,7 @@
 
 ## Zubereitung
 
-Erste 5 Zutaten mischen, Kakao und Wasser verrühren und alles verkneten. In Form füllen und *viele* Kirschen drauf-/reindrücken.
+Erste 7 Zutaten mischen, Kakao und Wasser verrühren und alles verkneten. In Form füllen und *viele* Kirschen drauf-/reindrücken.
 Bei 160 Grad 35-40 Minuten lang backen (Alufolie nicht vergessen).
 Nach Erkalten mit Kuvertüre und Deko verzieren.
 
