@@ -1,11 +1,11 @@
 # Schokokuchen mit Kirschen
 
 ## Zutaten
-* 200 g Zucker
-* 200 g Mehl
+* 250 g Zucker
+* 250 g Mehl
 * 175 g Butter
 * 1 Pkg Backpulver
-* 3 Eier
+* 3 große Eier
 * 100 ml Creme Fraiche
 * 100 ml Sahne
 * halbe Tasse Kakao
@@ -15,7 +15,6 @@
 
 ## Zubereitung
 
-Erste 7 Zutaten mischen, Kakao und Wasser verrühren und alles verkneten. In Form füllen und *viele* Kirschen drauf-/reindrücken.
-Bei 160 Grad 35-40 Minuten lang backen (Alufolie nicht vergessen).
+Erste 7 Zutaten mischen, Kakao und Wasser verrühren und alles verkneten. In Form gießen und *viele* Kirschen drauf-/reindrücken.
+Bei 160 Grad 35-40 Minuten lang backen (Alufolie nach ca. 15 min nicht vergessen).
 Nach Erkalten mit Kuvertüre und Deko verzieren.
-
