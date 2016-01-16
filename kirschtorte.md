@@ -2,48 +2,48 @@
 
 ## Zutaten
 ### Summe
-1 Glas Kirschen
-800g Schlagsahne
-240g Zucker
-125g Mehl
-5 Eier
-100g Zartbitter-Raspelschokolade
-80g Speisestärke
-50g Belegkirschen
-15g Kakao
-5 EL Wasser
-3 EL Kirschwasser
-2 TL Backpulver
-2 Pck. Vanille-Zucker
-1 Pck. Gelatine
-Zimt
+* 1 Glas Kirschen
+* 800g Schlagsahne
+* 240g Zucker
+* 125g Mehl
+* 5 Eier
+* 100g Zartbitter-Raspelschokolade
+* 80g Speisestärke
+* 50g Belegkirschen
+* 15g Kakao
+* 5 EL Wasser
+* 3 EL Kirschwasser
+* 2 TL Backpulver
+* 2 Pck. Vanille-Zucker
+* 1 Pck. Gelatine
+* Zimt
 
 ### Teig
-5 Eier
-175g Zucker
-1 Pck. Vanille-Zucker
-125g Mehl
-2 TL Backpulver
-50g Speisestärke
-15g Kakao
-Zimt
+* 5 Eier
+* 175g Zucker
+* 1 Pck. Vanille-Zucker
+* 125g Mehl
+* 2 TL Backpulver
+* 50g Speisestärke
+* 15g Kakao
+* Zimt
 
 ### Kirsch-Füllung
-1 Glas Kirschen
-30g Speisestärke
-25g Zucker
-3 EL Kirschwasser
+* 1 Glas Kirschen
+* 30g Speisestärke
+* 25g Zucker
+* 3 EL Kirschwasser
 
 ### Sahne-Füllung
-1 Pck. Gelatine
-5 EL Wasser
-800g Schlagsahne
-40g Zucker
-1 Pck. Vanille-Zucker
+* 1 Pck. Gelatine
+* 5 EL Wasser
+* 800g Schlagsahne
+* 40g Zucker
+* 1 Pck. Vanille-Zucker
 
 ### Verzieren
-100g Zartbitter-Raspelschokolade
-50g Belegkirschen
+* 100g Zartbitter-Raspelschokolade
+* 50g Belegkirschen
 
 ## Zubereitung
 ### Nicht vergessen
